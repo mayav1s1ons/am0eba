@@ -1,2 +1,4 @@
 # am0eba
-◕ ◞ ◕ This project was made using https://netnet.studio
+
+visit this piece at: https://mayav1s1ons.github.io/am0eba/
+>currently unavailable
